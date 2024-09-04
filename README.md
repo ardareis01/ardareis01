@@ -1,4 +1,4 @@
-[![MasterHead](https://www.google.com/url?sa=i&url=https%3A%2F%2Fnews.microsoft.com%2Fai%2F&psig=AOvVaw1yzMVfuYavtqPAgPZ59il7&ust=1725506816368000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCNDp_v2rqIgDFQAAAAAdAAAAABAS)
+![MasterHead](https://cdn.evrimagaci.org/OHvP4PPpqxnUqyj0ps6BNyu2um8=/825x0/filters:format(webp)/storage.evrimagaci.org%2Fcontent%2F93282ccc-4cfa-42cd-9010-06586300f85a.png)
 
 
 
